@@ -18,7 +18,7 @@ During my free time, I enjoy rollerblading, when I'm inspired, drawing, when I g
 
 - Working on the improvement of Twenty20's Novus platform, and other projects within the company that I cannot talk about right now ;)
 - Started an [Executive Master in Software Engineering](https://www.utdallas.edu/fact-sheets/ecs/ms-software-engineering/) at University of Dallas, Texas, so far it's great!
-- Playing [Destiny 2](https://www.bungie.net)! Have more than 4,000 hours on it. I know, right?
+- Playing [Destiny 2](https://www.bungie.net/7/en/Destiny)! Have more than 4,000 hours on it. I know, right?
 - Trying to rollerblade more
 
 ### My latest interests/research?
